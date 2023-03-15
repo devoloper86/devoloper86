@@ -1,1 +1,1 @@
-### Hi, I'm Obidjon Sulaymonov <img src="https://media2.giphy.com/media/gM5qFksULw54NMWyry/giphy.gif?cid=ecf05e47hc2svm6t936g9bzsyt174n82tpsrmt95jrs2zw5s&rid=giphy.gif&ct=s" width="100px">
+### Hi, I'm Obidjon Sulaymonov <img src="https://giphy.com/embed/w1OBpBd7kJqHrJnJ13" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/stickers/emojitheiconicbrand-hello-hi-wave-w1OBpBd7kJqHrJnJ13">via GIPHY</a></p>" width="100px">
